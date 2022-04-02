@@ -1,2 +1,2 @@
 
-GreenPilgrim website can be visited in https://www.greenpilgrim.com
+GreenPilgrim website can be visited in https://www.greenpilgrim.eco
